@@ -1,2 +1,3 @@
 # Min
-Mobile assisted lanuage learning means using mobile technologies, such as smartphone, tablets, and other portable technolgoies, for language learning anytime anywhere. 
+I would like to share some of the photographs that I like. 
+See those animals. 
